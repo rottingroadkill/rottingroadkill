@@ -1,9 +1,10 @@
 
+
  <p align="center"
 <a
 
    ![Profile View counter](https://komarev.com/ghpvc/?username=rottingroadkill&color=1F3392&label=computers&style=plastic)
 
-<div align="center"> <img width="400" height="166" alt="tyler-josh" src="https://github.com/user-attachments/assets/e74697e8-7878-450a-8f83-4c7112493467" />
+<img width="1500" height="500" alt="Untitled358_20260628005705" src="https://github.com/user-attachments/assets/f196b4ef-0e89-489f-87e9-9b41e3c2fd63" />
 
-“ i want you by my side so that i _never_ feel alone again ”
+
