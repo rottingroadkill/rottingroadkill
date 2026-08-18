@@ -6,7 +6,7 @@
    ![Profile View counter](https://komarev.com/ghpvc/?username=rottingroadkill&color=898462&label=tapes&style=plastic)
 
 
- <div align="center"> <img width="498" height="281" alt="marble-hornets-jay-merrick" src="https://github.com/user-attachments/assets/4a069ef8-94f5-43c8-bbad-e831b92479ac" />
+ <div align="center"> <img width="400" height="209" alt="tumblr_a6ed554c3e9adee78183788a87822481_1986e4cf_400" src="https://github.com/user-attachments/assets/2b38d070-447a-4d4c-a264-061c639ed2d6" />
   
 $\color{#898462}{“‎ dragging‎ your‎ feet‎ in‎ the‎ face‎ of‎ creation.‎ ”}$
 
