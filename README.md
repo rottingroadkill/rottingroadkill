@@ -14,7 +14,7 @@ $\color{#898462}{“‎ dragging‎ your‎ feet‎ in‎ the‎ face‎ of‎ c
 
 please do not copy or take any inspo off my skins (◞‸ ◟)💧 i will jump your ass.
 
-**BYI**  :  im usually offtab. i don't do well with holding conversations or w interacting.
+im usually offtab or afk doing something. send me a whisper if you need anything. i don't do well with holding conversations or interacting w anyone on here. please understand and give me time.
 
 <img width="400" height="67" alt="tumblr_d6d2828d04b64c55f924a04f566ad4b8_ac508e69_400" src="https://github.com/user-attachments/assets/52a655fd-e9a2-4e79-a39f-ec284fa76a77" />
 
