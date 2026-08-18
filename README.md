@@ -12,7 +12,7 @@ $\color{#898462}{“‎ dragging‎ your‎ feet‎ in‎ the‎ face‎ of‎ c
 
 .  .  .
 
- erm, i block freely.
+ i block freely.
 
 please do not copy or take any inspo off my skins (◞‸ ◟)💧 i will jump your ass.
 
