@@ -18,7 +18,7 @@ please do not copy or take any inspo off my skins (◞‸ ◟)💧 i will jump y
 
 im usually offtab or afk doing something. send me a whisper if you need anything. i don't do well with holding conversations or interacting w anyone on here. please understand and give me time to adjust.
 
-i can be found on both 18+ or safe servers. usually wondering around or at the bakery. maybe sitting around spawn.
+i can be found on both 18+ or safe servers. usually wondering around or at the bakery. maybe sitting around spawn or elsewhere.
 
 .  .  .
 
